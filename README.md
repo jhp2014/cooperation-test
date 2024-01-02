@@ -1,7 +1,3 @@
 # cooperation-test
 
-11
-
-22
-
-33
+ㅀㄴㄹㅇㄴ
